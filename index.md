@@ -4,3 +4,4 @@ Walter Hartwell White Sr., also known by his clandestine alias Heisenberg, is a 
 * coleric
 * greedy
 * liar
+> You clearly don’t know who you’re talking to, so let me clue you in. I am not in danger, Skyler. I am the danger. A guy opens his door and gets shot, and you think that of me? No! I am the one who knocks!
